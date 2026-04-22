@@ -1,0 +1,1 @@
+# Iq-TEST-Labirint-oxirgi-versiya
